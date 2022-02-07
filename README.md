@@ -1,4 +1,4 @@
-# hii 👋 little project your sweet twenty two from ur bestie ever 
+# hii 👋 little project for your warm twenty two from special guest☺️
 karna w juga gajago jago amat creat repo jadi berupa ucapan datar aja ya ga creat visual studionya hehe :)
 
 
